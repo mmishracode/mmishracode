@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Manas Mishra</h1>
 <h3 align="center">A passionate Full Stack Developer.</h3>
 
-- 🔭 I’m currently working on **AI Fitness Trainer**
+- 🔭 I’m currently working on **Differential Privacy**
 
 - 🌱 I’m currently learning **Human Centered Computing**
 
