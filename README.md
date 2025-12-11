@@ -11,9 +11,9 @@
 
 - 📫 How to reach me **manasmishra.msa@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pOHtTQG8dV3cAUgU4XbIDEl5RKOpHJTL/view?usp=sharing](https://drive.google.com/file/d/1pOHtTQG8dV3cAUgU4XbIDEl5RKOpHJTL/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/drive/folders/1SpXP-aRH07yOD-4GtXjF33AmCZWSy9vf?usp=sharing)
 
-- ⚡ Fun fact **I think I am Funny.**
+- ⚡ Fun fact **Pickleball and Tennis Player**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
